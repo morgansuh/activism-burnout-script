@@ -1,1 +1,1 @@
-# activism-burnout-script
+# activism burnout
